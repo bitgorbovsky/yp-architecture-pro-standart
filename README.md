@@ -1,0 +1,1 @@
+# yp-architecture-pro-standart
